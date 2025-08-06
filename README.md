@@ -1,2 +1,2 @@
 # Ventilado-
-ventad e ventiladores
+venta de ventiladores
